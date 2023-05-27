@@ -25,4 +25,5 @@ Apesar do amor ser o tema central, Taylor concebeu o álbum como algo mais do qu
 <img src= "https://correiodecarajas.com.br/wp-content/uploads/2019/08/Taylor-Swift.jpg">
 <q><i>Reputation estava tão distante do que eu costumo fazer. Lover parece um retorno aos pilares fundamentais de composição sobre os quais costumo construir minha música. É realmente honesto; não sou eu interpretando um personagem. É realmente como me sinto, não destilada. E há muitas admissões muito pessoais nele. E também, eu amo uma metáfora. [...] Você sabe, todo o Reputation era apenas uma metáfora, mas este [Lover] é um disco muito pessoal. </q></i> - Taylor Swift comparando Lover com Reputation, em entrevista à Rolling Stone.
 
+<br>
 Se interessou pelo album? Clique [aqui](https://open.spotify.com/album/1NAmidJlEaVgA3MpcPFYGq?si=JWJpxiQuTDudJG4wB09YEg) para ouvir! 🧡🦋
